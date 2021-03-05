@@ -1,2 +1,2 @@
 # curriculo
-Currículo Tíäg Silvä
+Currículo atualizado
